@@ -2,6 +2,6 @@
 
 Target is simple: Create software to kill as many monopolies as possible.
 
-You can earn money from it. But no more monopolies. 
+You can earn money from it. But no more monopolies unless it's your.
 
 F.e: Create Service like youtube and make it populary. Yes you can. 
